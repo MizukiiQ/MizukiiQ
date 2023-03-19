@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yousef!
-- 👀 I’m interested in games and comic books (pretty basic)   
+- 👀 I’m interested in music and books   
 - 🌱 I’m currently learning Basic Subjects
 - 💞️ I’m looking to collaborate on Video Projects 
 - 📫 How to reach me: email me emeraldlake12@gmail.com
